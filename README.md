@@ -1,1 +1,1 @@
-Road signage in the 18th century was rudimentary compared to modern standards, with simple milestones, signposts, and direction markers used to guide travelers along routes.
+The growth of trade and commerce in the 18th century increased demand for better roads, prompting governments to invest in road infrastructure as a means of facilitating economic growth and regional integration.
