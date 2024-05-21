@@ -1,1 +1,1 @@
-The growth of trade and commerce in the 18th century increased demand for better roads, prompting governments to invest in road infrastructure as a means of facilitating economic growth and regional integration.
+Traveling long distances on 18th-century roads was slow and arduous, with average speeds ranging from 3 to 5 miles per hour for horse-drawn vehicles, depending on road conditions.
