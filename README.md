@@ -1,1 +1,1 @@
-The construction of the Pan-American Highway, spanning North and South America, began in the early 20th century and remains one of the longest road networks in the world, connecting diverse landscapes and cultures across continents.
+The implementation of highway safety standards and crash testing in the 20th century led to the development of safer road designs, vehicle technologies, and traffic regulations, reducing fatalities and injuries on roads.
