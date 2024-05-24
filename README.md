@@ -1,1 +1,1 @@
-The implementation of highway safety standards and crash testing in the 20th century led to the development of safer road designs, vehicle technologies, and traffic regulations, reducing fatalities and injuries on roads.
+The development of intelligent transportation systems (ITS) in the late 20th century, including traffic management technologies, dynamic message signs, and vehicle-to-infrastructure communication, improved traffic flow and safety on roads.
