@@ -1,1 +1,1 @@
-Road construction and maintenance were often carried out by local communities, with laborers using simple tools like shovels, picks, and wheelbarrows to repair and improve roads.
+The development of horse-drawn omnibuses and public transit systems in the 19th century required the construction of paved streets and roads in cities to accommodate increased traffic and demand for transportation services.
