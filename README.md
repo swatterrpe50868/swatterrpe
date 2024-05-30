@@ -1,1 +1,1 @@
-The development of horse-drawn omnibuses and public transit systems in the 19th century required the construction of paved streets and roads in cities to accommodate increased traffic and demand for transportation services.
+The advent of bicycle travel in the late 19th century popularized the demand for smoother, paved roads, leading to increased investment in road infrastructure in urban and suburban areas.
