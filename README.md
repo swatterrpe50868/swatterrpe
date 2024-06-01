@@ -1,1 +1,1 @@
-The expansion of postal services and courier networks in the 19th century relied on well-maintained roads for the timely delivery of mail and packages between towns and cities.
+Roads in the 18th century were primarily unpaved, consisting of dirt, gravel, or cobblestones, which made travel slow, difficult, and uncomfortable.
