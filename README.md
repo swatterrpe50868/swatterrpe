@@ -1,1 +1,1 @@
-Roads in the 18th century were primarily unpaved, consisting of dirt, gravel, or cobblestones, which made travel slow, difficult, and uncomfortable.
+The development of turnpikes, or toll roads, proliferated in the 19th century, with private companies or local governments collecting fees from travelers to fund road construction and maintenance.
