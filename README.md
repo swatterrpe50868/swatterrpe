@@ -1,1 +1,1 @@
-The development of turnpikes, or toll roads, proliferated in the 19th century, with private companies or local governments collecting fees from travelers to fund road construction and maintenance.
+The rise of urbanization and suburbanization in the 20th century spurred the construction of feeder roads, arterial routes, and ring roads to accommodate increased traffic and population growth in cities and metropolitan areas.
