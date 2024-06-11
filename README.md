@@ -1,1 +1,1 @@
-Highwaymen, or robbers who preyed on travelers, were a common threat on 18th-century roads, particularly in remote or isolated areas where law enforcement was scarce.
+Road construction and maintenance were often carried out by local communities, with laborers using simple tools like shovels, picks, and wheelbarrows to repair and improve roads.
