@@ -1,1 +1,1 @@
-Road construction and maintenance were often carried out by local communities, with laborers using simple tools like shovels, picks, and wheelbarrows to repair and improve roads.
+The development of the first traffic signals in the early 20th century improved safety and efficiency at intersections, reducing accidents and congestion on urban roads.
