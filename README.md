@@ -1,1 +1,1 @@
-The rise of urbanization and suburbanization in the 20th century spurred the construction of feeder roads, arterial routes, and ring roads to accommodate increased traffic and population growth in cities and metropolitan areas.
+The construction of the first modern highways, such as the Macadamized National Road in the United States, marked a significant milestone in 19th-century road development, providing a model for future road-building projects.
