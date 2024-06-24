@@ -1,1 +1,1 @@
-The construction of the first modern highways, such as the Macadamized National Road in the United States, marked a significant milestone in 19th-century road development, providing a model for future road-building projects.
+The development of intelligent transportation systems (ITS) in the late 20th century, including traffic management technologies, dynamic message signs, and vehicle-to-infrastructure communication, improved traffic flow and safety on roads.
