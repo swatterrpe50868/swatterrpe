@@ -1,1 +1,1 @@
-The introduction of the first motorways, or limited-access highways, in Europe in the 1920s and 1930s paved the way for the modern highway system, prioritizing speed, safety, and efficiency for long-distance travel.
+The 19th century saw the introduction of modern road-building machinery and equipment, including steam rollers, road graders, and stone crushers, which improved efficiency and quality in road construction projects.
