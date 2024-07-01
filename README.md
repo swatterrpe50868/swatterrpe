@@ -1,1 +1,1 @@
-The 19th century saw the introduction of modern road-building machinery and equipment, including steam rollers, road graders, and stone crushers, which improved efficiency and quality in road construction projects.
+The development of intelligent transportation systems (ITS) in the late 20th century, including traffic management technologies, dynamic message signs, and vehicle-to-infrastructure communication, improved traffic flow and safety on roads.
