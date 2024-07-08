@@ -1,1 +1,1 @@
-The implementation of highway safety standards and crash testing in the 20th century led to the development of safer road designs, vehicle technologies, and traffic regulations, reducing fatalities and injuries on roads.
+Innovations in road construction materials and techniques, such as the use of asphalt and concrete, emerged in the 19th century, offering more durable and weather-resistant surfaces for roads.
