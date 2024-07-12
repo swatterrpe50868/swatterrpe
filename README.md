@@ -1,1 +1,1 @@
-The construction of military roads and strategic transportation routes played a crucial role in military campaigns and logistics during conflicts such as the Napoleonic Wars and the American Civil War.
+The construction of the Trans-Canada Highway, completed in 1962, connected Canada from coast to coast, facilitating transportation and commerce between provinces and regions.
