@@ -1,1 +1,1 @@
-The construction of the Trans-Canada Highway, completed in 1962, connected Canada from coast to coast, facilitating transportation and commerce between provinces and regions.
+The introduction of the first motorways, or limited-access highways, in Europe in the 1920s and 1930s paved the way for the modern highway system, prioritizing speed, safety, and efficiency for long-distance travel.
