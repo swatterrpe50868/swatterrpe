@@ -1,1 +1,1 @@
-The spread of telegraph lines alongside roads in the 19th century facilitated communication and commerce by enabling rapid transmission of messages and information across long distances.
+In urban areas, streets were often narrow and congested, with pedestrians, carts, and animals competing for limited space, leading to traffic jams and safety hazards.
