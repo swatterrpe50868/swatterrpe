@@ -1,1 +1,1 @@
-The development of intelligent transportation systems (ITS) in the late 20th century, including traffic management technologies, dynamic message signs, and vehicle-to-infrastructure communication, improved traffic flow and safety on roads.
+The development of the first expressways, or controlled-access highways, in the United States in the mid-20th century provided fast and efficient travel routes for commuters and long-distance travelers alike.
